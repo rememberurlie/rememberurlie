@@ -6,7 +6,7 @@
   I am currently studying for a Bachelor's degree in Science-Technology, which is my second year of study
   <br>and studying Computer-Technology as my major at Rajamangala University of Technology Thanyaburi.
   <br><br>
-  Please contact me with <a href="https://discordapp.com/users/161111988141817857">My Discord</a> and Email <a href="mailto:natipong.sanklar@gmail.com">natipong.sanklar@gmail.com</a>, thank you.
+  Please contact me with <a href="https://discordapp.com/users/161111988141817857">My Discord</a> and Email <a href="mailto:netipong.jj@gmail.com">netipong.jj@gmail.com</a>, thank you.
   <br><br><br><br>
 </div>
   
